@@ -1,0 +1,2 @@
+# wesssgruel.github.io
+dontwriteChinese
